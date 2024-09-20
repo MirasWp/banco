@@ -1,0 +1,2 @@
+# banco
+pra vc lindao
